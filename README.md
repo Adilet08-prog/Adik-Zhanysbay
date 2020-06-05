@@ -1,0 +1,2 @@
+# Adik-Zhanysbay
+adik-zhanysbay
